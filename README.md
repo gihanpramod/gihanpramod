@@ -11,7 +11,7 @@
 👀 I’m interested in *Software Development,Wed Development, AI/ML, UI/UX Design and more*  
 🌱 Currently pursuing studies in *Information Technology*  
 🕺 I love collaborating on *software projects, machine learning models, and innovative UI/UX designs*  
-📫 Email me at *gihanpramod971@gmail.com*   
+📫 Email me at *gihanpramod970@gmail.com*   
 💬 Message me on WhatsApp *‪+94769988353‬*
 
 <h2>🚀 Languages and Tools I Use</h2>
